@@ -1,10 +1,10 @@
 Sledujte ~ Nie je čas zomrieť (2021) Celý Film České Zdarma Online
-=================
+===================
 Sledujte Nie je čas zomrieť Online film 2021 HD zdarma HD!! Nie je čas zomrieť 2021 s anglickými titulky připravenými ke stažení, Nie je čas zomrieť 2021 720p, 1080p, BrRip, DvdRip, Youtube, Reddit, Multilanguage a vysoká kvalita. 4K UHD | 1080P FULL HD | 720P HD | MKV | MP4 | DVD | Blu-Ray
 
-░░▒▓██► <a href="https://t.co/mOLmP1oLuv?amp=1">Sledujte Nie je čas zomrieť Celý Film CZ-SK dabing Online</a>
+░░▒▓██► Sledujte Nie je čas zomrieť Celé -- https://t.co/mOLmP1oLuv?amp=1
 
-░░▒▓██► <a href="https://t.co/mOLmP1oLuv?amp=1">Sledujte Nie je čas zomrieť Celý Film CZ-SK dabing Online</a>
+░░▒▓██► Sledujte Nie je čas zomrieť Celé -- https://t.co/mOLmP1oLuv?amp=1
 
 Tomáš s Terezou prožívali lásku jako z učebnice. Poznali se na střední, přeskočila mezi nimi jiskra a pak už to jen doutnalo a hořelo. Po vysoké spolu zůstali v Praze, meteorolog Tomáš získal skvělou práci televizního moderátora počasí, a Tereza se (zatím neúspěšně) snaží rozjet prodej a výrobu ručně šitých bot. Kdy se to zadrhlo? Na Štědrý den, když Tereza přistihla polosvlečeného Tomáše v domněle choulostivé situaci s populární televizní moderátorkou. Prekérní chvilku by sice Tomáš mohl celkem racionálně vysvětlit, kdyby k tomu ale dostal příležitost.
 
